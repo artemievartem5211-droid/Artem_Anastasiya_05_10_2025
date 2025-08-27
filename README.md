@@ -1,0 +1,1 @@
+# Artem_Anastasiya_05_10_2025
